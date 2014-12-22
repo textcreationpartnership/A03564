@@ -36,8 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶ Here begynneth a lytell treatyſe
-called the Lucydarye.depiction of master and discipleye diſcyple.AS for to ſpeke of nobleſſe ſpyrytuall. it is
+AS for to ſpeke of nobleſſe ſpyrytuall. it is
 the mooſt grete nobleſſe that is / and that
 man may ha
 #####Body#####
